@@ -1,1 +1,1 @@
-GTX970m
+backup after meeting 0923
